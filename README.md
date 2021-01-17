@@ -1,5 +1,5 @@
 # El-pueblo-unido-jamas-sera-vencido
-智利版：
+智利版：\n
 ¡El pueblo unido jamás será vencido!
 团结的人民将永远不会被击败！
 ¡El pueblo unido jamás será vencido!
